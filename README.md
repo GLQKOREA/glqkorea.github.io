@@ -1,1 +1,1 @@
-# glqkorea.github.io
+# GLG Homepage
